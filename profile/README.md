@@ -4,6 +4,8 @@
 
 *Paper.io 2* is a **hyper-casual multiplayer** game where you control a colorful square and aim to **conquer as much territory** as possible. The game blends simple controls with strategic gameplay, offering an **epic mix of action, survival, and domination**.
 
+## <a href="https://1kb.link/fNE8l1">👉 Click To Play Paper.io 2 Unblocked Games 👈</a>
+
 ### ⚔️ Why is *Paper.io 2* So Addictive?
 
 Here are the **legendary elements** that make this game stand out:
